@@ -1,10 +1,8 @@
 - samuel
 - terminar os estudos 
-- a jogar minecraft
 -estudar
--instagran,zap zap
-- 😄elu delo
-- não sei colocar gelo agachado
+-instagram e Whatsapp
+- não sei colocar gelo agachando
 
 <!---
 yumi2110/yumi2110 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
